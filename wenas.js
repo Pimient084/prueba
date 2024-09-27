@@ -1,1 +1,1 @@
-//wenas (full personal)
+//wenas (full personal, re ofensivo)
